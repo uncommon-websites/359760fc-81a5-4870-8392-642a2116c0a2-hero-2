@@ -1,0 +1,2 @@
+# 359760fc-81a5-4870-8392-642a2116c0a2-hero-2
+Hero section variant 2 for 359760fc-81a5-4870-8392-642a2116c0a2
